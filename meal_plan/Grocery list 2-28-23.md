@@ -1,6 +1,7 @@
 - [ ] Bananas
 - [ ] Apples
 - [ ] Fruits
+- [ ] Almond milk
 - [ ] Cran grape juice 
 - [ ] Cereal
 - [ ] Bread
