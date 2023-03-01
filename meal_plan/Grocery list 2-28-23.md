@@ -11,6 +11,7 @@
 - [ ] Sweet potato
 - [ ] Dried minced onion
 - [ ] Provolone slices
+- [ ] Pizza
 - [ ] Block cheddar cheese
 - [ ] Lunch meat
 - [ ] Chicken breast 3 lbs
