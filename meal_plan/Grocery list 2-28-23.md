@@ -1,0 +1,32 @@
+- [ ] Bananas
+- [ ] Apples
+- [ ] Fruits
+- [ ] Cran grape juice 
+- [ ] Cereal
+- [ ] Bread
+- [ ] Jelly
+- [ ] Ground turkey 2
+- [ ] Sweet potato
+- [ ] Dried minced onion
+- [ ] Provolone slices
+- [ ] Block cheddar cheese
+- [ ] Lunch meat
+- [ ] Chicken breast 3 lbs
+- [ ] Protein plus spaghetti noodles
+- [ ] Coconut milk
+- [ ] Bacon
+- [ ] Honey
+- [ ] Tortillas
+- [ ] Cooking spray
+- [ ] Potatoes 4
+- [ ] Zucchini 
+- [ ] Yellow squash
+- [ ] Chive and onion cream cheese
+- [ ] Crescent rolls 2 tubes
+- [ ] Butter
+- [ ] Granola bars for kiddos school snack 
+- [ ] Apple sauce
+- [ ] Greek yogurt tub
+- [ ] Can green beans
+- [ ] Dish soap for hand washing
+- [ ] Toilet paper
