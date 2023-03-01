@@ -2,6 +2,7 @@
 - [ ] Apples
 - [ ] Fruits
 - [ ] Almond milk
+- [ ] Coffee creamer
 - [ ] Cran grape juice 
 - [ ] Cereal
 - [ ] Bread
