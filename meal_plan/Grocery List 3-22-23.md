@@ -4,16 +4,18 @@
 -Orange juice 
 -Bread
 -3 boxes Captain crunch peanut butter crunch (ecoupon)
+-toasted oats (signature select cheerios basically)
 -Quaker chewy dips peanut butter granola bar (ecoupon)
 -Applesauce
 -Can white beans
 -chicken broth
 -canned pineapple slices in 100% pineapple juice
+-canned fruit cocktail in juice
 -vanilla extract
--crescent rolls 2 cans
 -big box goldfish (ecoupon)
 -townhouse pita sea salt crackers (ecoupon)
 -challenge butter salted 16 oz (ecoupon)
+-crescent rolls 2 cans
 -strawberry Greek gods Greek style yogurt
 -Lucerne cream cheese bar 2
 -Lucerne coffee creamer Irish cream
