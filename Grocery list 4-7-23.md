@@ -1,0 +1,45 @@
+- [ ] Bread
+- [ ] Almond milk
+- [ ] Whole milk
+- [ ] Can corn
+- [ ] Canned coconut milk
+- [ ] Cheese pizza
+- [ ] Classico four cheese pasta sauce
+- [ ] Ground turkey 2
+- [ ] Italian sausage
+- [ ] 15 oz container ricotta cheese or cottage cheese
+- [ ] Frozen garlic bread
+- [ ] Zucchini 
+- [ ] Greek yogurt
+- [ ] 6 oz tomato paste
+- [ ] Chicken thigh
+- [ ] Can black beans
+- [ ] Cilantro
+- [ ] Small sour cream
+- [ ] Tortilla chips
+- [ ] Small jalapeño 
+- [ ] Canned tomatoes
+- [ ] Diapers size 4
+- [ ] Juice
+- [ ] Cranberry grape juice
+- [ ] Large size apple cinnamon cheerios and chocolate peanut butter two each
+- [ ] $3.97 bacon
+- [ ] Fruit & veggie nutrigrain bars 2 
+- [ ] Canned fruit cocktail 4
+- [ ] Signature select olive oil
+- [ ] Lucerne butter
+- [ ] Fresh cravings classic hummus
+- [ ] Crackers
+- [ ] Blackberries
+- [ ] Bananas 2 bunches
+- [ ] Box Mac and cheese
+- [ ] Green onion
+- [ ] Large sweet potato
+- [ ] Sliced provolone cheese 
+- [ ] Goldfish
+- [ ] Fruit
+- [ ] $1.99 lays chips bag if you want
+- [ ] Vanilla wafer cookies (the circular ones )
+- [ ] Bar cream cheese 1
+- [ ] Tub frozen whipped cream
+- [ ] Gummy bears
