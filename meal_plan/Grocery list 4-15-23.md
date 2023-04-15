@@ -1,0 +1,33 @@
+- [ ] Bunch of lemons and limes for staging
+- [ ] Bananas
+- [ ] Lettuce
+- [ ] Strawberries on sale
+- [ ] Fruits
+- [ ] Cantaloupe
+- [ ] Zucchini
+- [ ] Potatoes
+- [ ] Minute Maid zero sugar juice near produce refrigerated (ecoupon)
+- [ ] Juice
+- [ ] Cans fruit cocktail 
+- [ ] Peanut butter
+- [ ] Old fashioned oats
+- [ ] Cereal
+- [ ] Two boxes Quaker granola bars
+- [ ] Chicken broth
+- [ ] Goldfish
+- [ ] Tortillas
+- [ ] Diapers size 4
+- [ ] Almond milk
+- [ ] Whole milk
+- [ ] Coffee creamer 
+- [ ] Eggs
+- [ ] Bread
+- [ ] Crescent rolls 2 tubes
+- [ ] Mozzarella cheese
+- [ ] Cheddar cheese
+- [ ] Cheese slices
+- [ ] Ground turkey 2
+- [ ] Chicken breast 2
+- [ ] Hot dogs
+- [ ] Bacon
+- [ ] Turkey lunch meat
