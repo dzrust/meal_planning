@@ -1,0 +1,56 @@
+- [ ] Clorox wipes
+- [ ] Mop type stuff?
+- [ ] Paper Towels?
+- [ ] Ground turkey 3
+- [ ] Coconut milk can
+- [ ] Chicken broth 2 cartons
+- [ ] Red bell pepper 2
+- [ ] Green bell pepper
+- [ ] Frozen white corn
+- [ ] Salsa
+- [ ] Blondie mix or another Sunday dessert
+- [ ] Sour cream small
+- [ ] Cheddar cheese
+- [ ] Tortillas
+- [ ] Tortilla chips
+- [ ] Roma tomato’s 4
+- [ ] Green onion
+- [ ] Potatoes 2
+- [ ] Italian sausage 
+- [ ] White beans can
+- [ ] Arrowroot powder ?
+- [ ] Turkey bacon
+- [ ] Banza noodles
+- [ ] Yellow Onion 3
+- [ ] Chicken 2
+- [ ] Ranch
+- [ ] Bacon
+- [ ] Butter
+- [ ] Old fashioned oats
+- [ ] Eggs
+- [ ] Baking powder
+- [ ] Olive oil
+- [ ] Maple syrup
+- [ ] Fruit
+- [ ] Milk
+- [ ] Almond milk
+- [ ] Coffee creamer 
+- [ ] Coffee pods
+- [ ] Spinach
+- [ ] Buns
+- [ ] Provolone cheese
+- [ ] Pepperjack
+- [ ] BBQ sauce
+- [ ] Pickles
+- [ ] Sweet potato
+- [ ] Lunch meat
+- [ ] Ketchup 
+- [ ] Chipotle aioli
+- [ ] Protein plus noodles
+- [ ] Chocolate chips 
+- [ ] Pizzas
+- [ ] Box Mac and cheese 
+- [ ] Orange Juice
+- [ ] Aluminum Foil 
+- [ ] Sponges
+- [ ] Lettuce
