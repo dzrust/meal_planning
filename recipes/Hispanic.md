@@ -12,10 +12,12 @@
 
 ## Homemade Salsa
 
-- 1/2 tsp. cumin
+- 1 tsp. cumin
 - 1/2 tsp. garlic powder
 - 1 1/2 tsp salt
-- 1 tbsp. mincend onion
+- 1/2 tsp paprika
+- 1/4 tsp cayenne pepper
+- 1/4 cup of onion
 - 1 jalapeño 
 - 1 can of petite roma tomatoes
-- 1/8 cup of non packed cilantro
+- 1/4 cup of non packed cilantro
